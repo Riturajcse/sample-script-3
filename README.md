@@ -10,10 +10,10 @@ zxzxczcxz
 aadasdxzxzxc
 zxzczcxzxczzxzzxczcxzcx
 zxczzxczzxzczc
-zxczczcxzcxzxczxc
+z
 zxz
 zxczcx
 zxcz
 zxczcxzxc
 zxczcxzcx
-zzczcx
+zxc
