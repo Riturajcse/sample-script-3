@@ -14,6 +14,7 @@ z
 zxz
 zxczcx
 zxcz
+zxzxczx
 zxczcxzxc
 zxczcxzcx
 zxc
